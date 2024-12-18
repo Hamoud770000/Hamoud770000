@@ -7,7 +7,5 @@
 - ⚡ Fun fact: ...
 
 <!---
-Hamoud770000/Hamoud770000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-عربي مسلم
+Hamoud770000/Hamoud770000 is a ✨ 
+عربي مسلم أومن بالله وحده لا شريك لا وأن محمد عبده ورسول وأن جميع الانبياء رسل الله وعبيده ، وأومن بالبعث والجنه والنار وأومن بأن اكثر دين احترم وانصف المراة هو الإسلام ،،،،،
